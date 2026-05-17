@@ -1,10 +1,10 @@
-VIP CyberGhost امتداد | خوادم عالية السرعة + مفتاح الإيقاف هو أفضل CyberGhost امتداد مع خوادم عالية السرعة و مفتاح الإيقاف. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/cyberghost-fv20/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
